@@ -1,1 +1,1 @@
-# inkim0927.github.io --> blog start
+# inkim0927.github.io --> Blog start
